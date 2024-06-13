@@ -12,7 +12,7 @@
 
 💞️ I’m looking forward to one day working for Amazon, combining my technical skills with my passion for innovation.
 
-📫 You can reach me on LinkedIn: Simbongile Dyi
+📫 You can reach me on LinkedIn: [Simbongile Dyi](https://www.linkedin.com/in/simbongile-dyi-288227249/)
 
 😄 Pronouns: He/Him
 
